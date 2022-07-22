@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Gandavaa.B
 - 👀 I’m interested in CODE
 - 🌱 I’m currently learning CODE
-- 📫 baasanhvvgandawaa1@gmail.com 
+- 📫 baasanhvvgandawaa111@gmail.com 
 
 <!---
 GandawaaB/GandawaaB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
