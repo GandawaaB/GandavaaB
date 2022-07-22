@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gandawaa.B
+- 👋 Hi, I’m Gandavaa.B
 - 👀 I’m interested in CODE
 - 🌱 I’m currently learning CODE
 - 📫 baasanhvvgandawaa1@gmail.com 
